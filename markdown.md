@@ -1,7 +1,5 @@
 <h3>IRELANDS RUGGED COAST YEILDS</h3>
 
-<br>
-
 <h1>Priceless Relics of the Spanish Armada</h1>
 
 <hr>
